@@ -1,1 +1,1 @@
-`bass boosted`: https://i.scdn.co/image/ab67706c0000da84f2dd2a2bb40f31faf2437dd0
+# spotify playlist aestheticization
